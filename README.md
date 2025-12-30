@@ -19,4 +19,4 @@
 ### 📫 Connect with me
 - LinkedIn: linkedin.com/in/taj-muhammad-
 ansari-976301291
-- Email: taj********@gmail.com
+- Email: tajmuhammadansari220@gmail.com
